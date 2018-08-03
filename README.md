@@ -18,4 +18,4 @@ Today we travel to Hanoi to meet our friends and spend holidays with them in Nor
 
 ![DaNang Scooter](2018-07-27-danang_scooter.jpg)
 
-A family on their scooter standing next to me at a red light. I was on my way to an evening out with our interns. 
+A family on their scooter standing next to me at a red light. I was on my way to an evening out with our interns.
