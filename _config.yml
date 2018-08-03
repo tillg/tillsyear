@@ -1,3 +1,4 @@
 theme: jekyll-theme-minimal
 title: Till's Year
 description: One year. A picture every day.
+markdown: kramdown
