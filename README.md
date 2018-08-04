@@ -2,6 +2,12 @@
 
 One year. One picture per day.
 
+## 2018-07-30 Hanoi
+
+![Hanoi](2018-07-30-hanoi.jpg)
+
+This man was enjoying the streets of Hanoi, close by our hotel.
+
 ## 2018-07-29 Hanoi
 
 ![Hanoi](2018-07-29-hanoi.jpg)
