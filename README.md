@@ -1,6 +1,3 @@
-# Tills Year
-
-One year. One picture per day.
 
 ## 2018-08-07 Les mariés du Dragon de Hang Múa
 
