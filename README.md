@@ -1,3 +1,38 @@
+## 2018-08-13 Beach again
+
+![Beach and sand](2018-08-13-beach.jpg)
+
+Kids can have so much fun at the beach.
+
+## 2018-08-12 Da Nang Marathon
+
+![Marathon](2018-08-12-marathon.jpg)
+
+First officila race that I did with my 12 years old Lili. Probably next year I won't have to wait for her anymore and the year after she will have to wait for me.
+
+## 2018-08-11 Beach in Da Nang
+
+![Beach](2018-08-11-beach.jpg)
+
+After so much traveling, what a joy to be back home!!
+
+## 2018-08-10 Aerobic in Hai Phong
+
+![Aerobic](2018-08-10-aerobic_in_hai_phong.png)
+
+As in so many other cities of Vietnam, the women of Hai Phong also enjoy outdoor aerobic.
+
+## 2018-08-09 Motorbike packing
+
+![Motorbike packing](2018-08-09-motorbike_packing.jpg)
+
+We all know the heavy packed motorbikes that drive around Vietnam. But we seldom see the difficult packing process...
+
+## 2018-08-08 Best & cheapest Vietnamese food ever
+
+![Vietnamese food](2018-08-08-vietnam_food.jpg)
+
+Outside of Ninh Bin, on the countryside I had probably the best and surely the cheapest Vietnamese food ever: Porc with rice and Morning Glory for 15'000 VND (~ 0.65 USD). And a very friendly, old Vietnamese lady that entertained me during my lunch...
 
 ## 2018-08-07 Les mariés du Dragon de Hang Múa
 
