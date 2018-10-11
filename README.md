@@ -1,3 +1,9 @@
+## 2018-10-11 Hacking with scholars
+
+![scolars](2018-10-11-hacking-with-scholars.jpg)
+
+Today I spent the evening hacking with our scholars. We went thru the process of building a website with GitHub ;)
+
 ## 2018-08-13 Beach again
 
 ![Beach and sand](2018-08-13-beach.jpg)
