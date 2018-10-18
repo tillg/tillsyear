@@ -1,3 +1,10 @@
+## 2018-10-17 Lunch like a King
+
+![king](2018-10-17-lunch-king.jpg)
+
+Today I had lunch in a very special place: Our dining room looked like the one of a king.
+
+
 ## 2018-10-11 Hacking with scholars
 
 ![scolars](2018-10-11-hacking-with-scholars.jpg)
